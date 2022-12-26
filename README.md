@@ -1,3 +1,6 @@
+- General<br>
+未分類
+
 - 日経 NetWork<br>
 https://xtech.nikkei.com/atcl/nxt/mag/nnw/18/NNW_backnumber/
 
